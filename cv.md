@@ -27,5 +27,4 @@ In progress...
 *Colledge:* Minsk Colledge of Business, Economist
 
 ## **English**
-*Let me speak from my heart*
-My level of English is somewhere between **A1 Beginner** and **A2 Elementary**.
+*Let me speak from my heart*. - My level of English is somewhere between **A1 Beginner** and **A2 Elementary**.
